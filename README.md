@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Multi National Companies(MNC's)
 - Working as a Graphic Designer at Rook.
 - Completed my Graduation in Hindi.
-- 📫 How to reach me pokurutejesh.2021.cce@ritchennai.edu.in(or)tejeshpokuru@gmail.com
+- 📫 How to reach me pokurutejesh.2021.cce@ritchennai.edu.in(or)pokurutejesh@gmail.com
 
 <!---
 TEJ66/TEJ66 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
